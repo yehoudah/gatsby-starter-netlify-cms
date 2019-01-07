@@ -8,15 +8,21 @@ tags:
 ---
 ![Ephraïm et Ménaché](/img/12-vay-hi14.jpg "Ephraïm et Ménaché")
 
-L’aîné est le premier ou plus exactement l’un. Il ne s’ordonne pas dans une suite arithmétique. Ni chronologique. Au sein de sa fratrie il n’est ni avant ni après. De fait, il ne souffre d’aucune hiérarchie. Il est le tout.
+L’intrigue de la figure de Yaaqov est celle d’un périple autour de la question du droit d’aînesse. C’est elle qui fait la scène de sa venue au monde, c’est elle aussi qui, au soir de sa vie, croise ses mains afin de poser sa droite sur la tête d’Ephraïm, frère cadet de Ménaché l’aîné. Sagesse des mains nous disent les commentaires comme si, douées de raison, elles avaient agi d’elles-même. Comme si le corps avait pris le pas sur l’esprit et que le privilège du cadet était devenu réflexe. Lui-même cadet, Yaakov est cet homme qui ne cesse d’en découdre avec la condition d’être second.
 
-Le cadet au contraire, est déterminé par la relation à celui qui le précède. Appelé aussi puîné, puis né, le terme français parle de lui-même, il n’advient au monde qu’en-suite. Il est subséquent.
+
+
+ L’aîné est le premier ou plus exactement l’un. Il ne s’ordonne pas dans une suite arithmétique. Ni chronologique. Au sein de sa fratrie il n’est ni avant ni après. De fait, il ne souffre d’aucune hiérarchie. Il est le tout.
+
+
+
+ Le cadet au contraire, est déterminé par la relation à celui qui le précède. Appelé aussi puîné, puis né, le terme français parle de lui-même, il n’advient au monde qu’en-suite. Il est subséquent.
 
 Jumeau de Essav, Yaaqov est aussi "con-séquent" en tant que sa naissance coïncide avec celle de son frère aîné, qu'elle lui est contemporaine. Yaaqov ou « celui qui talonne » est le nom propre de cette "con-séquence".
 
 Par ailleurs l’hébreu « עקב (eqev) » qui signifie le talon, sert aussi à établir une relation de conséquence entre deux énoncés.
 
-> « Toutes les nations du monde se béniront par ta descendance parce que (eqev) tu as écouté ma voix. »(Genèse. 22:18)
+« Toutes les nations du monde se béniront par ta descendance parce que (eqev) tu as écouté ma voix. »(Genèse. 22:18)
 
 L’hébreu et le français semblent donc s’accorder pour y voir une forme de secondarité avec néanmoins cette distinction que l’hébreu fait de ce qui demeurait une simple attribution une véritable essence qui prend corps en la personne de Yaaqov.
 
@@ -32,6 +38,6 @@ Délibérément provocante, la Torah fait du récit de Yaaqov une succession d�
 
 Plus tard, victime de la manoeuvre sournoise de son beau-père, il se mariera avec deux soeurs. Relation formellement interdite par la loi du Sinaï qui par ailleurs autorise la polygamie. Mais au passage de cette intrigue matrimoniale nous nous retrouvons en présence du cas juridique exposé par la Torah pour établir l’interdiction de privilégier le fils issu de la « femme aimée » aux dépens de l’aîné de la « femme dédaignée ».
 
-> « Si un homme a deux femmes, l’une qu’il aime, l’autre qu’il dédaigne; que l’une et l’autre lui donnent des enfants, et que le fils aîné est celui de la femme dédaignée, le jour où il partagera entre ses fils l’héritage de ce qu’il possède, il ne pourra point conférer le droit d’aînesse au fils de la femme préférée, aux dépens du fils de la dédaignée qui est l’aîné. C’est le fils aîné de la dédaignée qu’il doit reconnaître pour tel, lui attribuant une part double dans tout son avoir; car c’est lui qui est le premier fruit de sa force, à lui appartient le droit d’aînesse.  » (Deut. 21:15-17)
+« Si un homme a deux femmes, l’une qu’il aime, l’autre qu’il dédaigne; que l’une et l’autre lui donnent des enfants, et que le fils aîné est celui de la femme dédaignée, le jour où il partagera entre ses fils l’héritage de ce qu’il possède, il ne pourra point conférer le droit d’aînesse au fils de la femme préférée, aux dépens du fils de la dédaignée qui est l’aîné. C’est le fils aîné de la dédaignée qu’il doit reconnaître pour tel, lui attribuant une part double dans tout son avoir; car c’est lui qui est le premier fruit de sa force, à lui appartient le droit d’aînesse.  » (Deut. 21:15-17)
 
 Ce texte fait l’exacte réplique du scénario de Yaaqov qui fait tout le contraire de ce qu'il y est prescrit. Il aime Ra’hel et dédaigne Léa mais cette préférence déterminera pourtant l'élection de Yossef qui reçoit le droit d’aînesse aux dépens de Ruben. Droit inaliénable selon le texte cité plus haut, l’aînesse ne semble pas avoir cette rigidité aux yeux de Yaaqov. Il lui cause par contre de multiplier les acrobaties. En effet, étrangement, Yossef ne semble obtenir ce droit et la part double d’héritage qui l'accompagne qu’au travers de ses enfants. Yossef n’est  jamais franchement désigné l’aîné par Yaaqov.

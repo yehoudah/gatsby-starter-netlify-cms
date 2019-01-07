@@ -6,7 +6,7 @@ description: Une reflexion sur le droit d’aînesse.
 tags:
   - blog
 ---
-![Ephraïm et Ménaché](/img/ephraim-menache.jpg "Ephraïm et Ménaché")
+![Ephraïm et Ménaché](/img/12-vay-hi14.jpg "Ephraïm et Ménaché")
 
 L’intrigue de la figure de Yaaqov est celle d’un périple autour de la question du droit d’aînesse. C’est elle qui fait la scène de sa venue au monde, c’est elle aussi qui, au soir de sa vie, croise ses mains afin de poser sa droite sur la tête d’Ephraïm, frère cadet de Ménaché l’aîné. Sagesse des mains nous disent les commentaires comme si, douées de raison, elles avaient agi d’elles-même. Comme si le corps avait pris le pas sur l’esprit et que le privilège du cadet était devenu réflexe. Lui-même cadet, Yaakov est cet homme qui ne cesse d’en découdre avec la condition d’être second.
 

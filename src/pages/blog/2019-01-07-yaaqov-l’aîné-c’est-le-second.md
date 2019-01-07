@@ -8,8 +8,6 @@ tags:
 ---
 ![Ephraïm et Ménaché](/img/12-vay-hi14.jpg "Ephraïm et Ménaché")
 
-L’intrigue de la figure de Yaaqov est celle d’un périple autour de la question du droit d’aînesse. C’est elle qui fait la scène de sa venue au monde, c’est elle aussi qui, au soir de sa vie, croise ses mains afin de poser sa droite sur la tête d’Ephraïm, frère cadet de Ménaché l’aîné. Sagesse des mains nous disent les commentaires comme si, douées de raison, elles avaient agi d’elles-même. Comme si le corps avait pris le pas sur l’esprit et que le privilège du cadet était devenu réflexe. Lui-même cadet, Yaakov est cet homme qui ne cesse d’en découdre avec la condition d’être second.
-
 L’aîné est le premier ou plus exactement l’un. Il ne s’ordonne pas dans une suite arithmétique. Ni chronologique. Au sein de sa fratrie il n’est ni avant ni après. De fait, il ne souffre d’aucune hiérarchie. Il est le tout.
 
 Le cadet au contraire, est déterminé par la relation à celui qui le précède. Appelé aussi puîné, puis né, le terme français parle de lui-même, il n’advient au monde qu’en-suite. Il est subséquent.
